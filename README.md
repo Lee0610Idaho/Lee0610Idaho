@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **jackieleeid2000@gmail.com**
 
-- ⚡ Fun fact **I think I have a strong belief in growth and hardwork.**
+- ⚡ Fun fact **I have a strong belief in growth and hardwork.**
 
 <p align="left">
 </p>
